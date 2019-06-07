@@ -8,7 +8,7 @@
 <a name="8" id="8" target="_blank"></a> <span id="8"></span>
 <a name="9" id="9" target="_blank"></a> <span id="9"></span>
 <img src="https://raw.githubusercontent.com/szzd3/1/master/t/fq1.jpg"><br>
-可向 fr45tr@gmail.com 索取推广网址
+<a href="https://github.com/szzd2/djy/blob/master/gb/about-djy.md#1">大纪元投稿</a>信箱：editor@epochtimes.com  传真：1-917-591-2423 or 646-349-5995
 <h1><p><strong>下载一键翻墙软件</strong></p></h1>
 <p><a href="https://git.io/vQjqe">神州正道（手机版）</a><img src="https://raw.githubusercontent.com/hao369/a/master/benzoutuijian.gif" alt=""></p>
 <img src="https://raw.githubusercontent.com/szzd3/1/master/t/sz.jpg"><br>
